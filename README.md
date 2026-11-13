@@ -28,4 +28,4 @@
   * Crosswalk — знаки пішохідного переходу
 
 ---
-
+https://drive.google.com/file/d/18eFJPUqbP_9-JQfPA6wPLj82EjjBIpxe/view?usp=sharing
